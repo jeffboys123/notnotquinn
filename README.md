@@ -14,4 +14,4 @@ Sign Here 👇
 
 [Matthew](https://github.com/M4tthewDE) was here. (Is this steam or what xd) ![nymnHappy](https://static-cdn.jtvnw.net/emoticons/v2/305223436/default/dark/1.0)
 
-[jeff](https://github.com/jeffboys123) was here. ![xqcFast](https://static-cdn.jtvnw.net/emoticons/v2/1607001/default/dark/3.0)
+[jeff](https://github.com/jeffboys123) was here. ![xqcFast](https://static-cdn.jtvnw.net/emoticons/v2/1607001/default/dark/1.0)
